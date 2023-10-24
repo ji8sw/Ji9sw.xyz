@@ -1,2 +1,2 @@
-# Ji9sw.xyz
-# JCODED.Ji9sw.xyz
+# [Ji9sw.xyz](https://Ji9sw.xyz)
+# [Jcoded.Ji9sw.xyz](Jcoded.Ji9sw.xyz)
